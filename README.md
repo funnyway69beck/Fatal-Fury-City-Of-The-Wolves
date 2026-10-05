@@ -219,4 +219,4 @@ FATAL FURY: City of the Wolves is available as a full free version with all feat
 Get ready to experience the thrill of **FATAL FURY: City of the Wolves**! Download now and join the fight today!
 
 ---
-**Last updated:** 2026-10-04 22:04:49 UTC
+**Last updated:** 2026-10-05 01:23:03 UTC
